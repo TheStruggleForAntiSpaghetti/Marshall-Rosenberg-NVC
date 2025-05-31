@@ -10,9 +10,9 @@ The following is a slightly edited transcript of a training Marshall Rosenberg l
 
 ### TWO KINDS OF CELEBRATIONS TO HELP US ENJOY LIFE MORE
 
-There are two kinds of celebrations to be conscious of to help us to enjoy life more.
-celebration of what we did that felt good
-celebration of what we did that brought us pain
+There are two kinds of celebrations to be conscious of to help us to enjoy life more:
+1. celebration of what we did that felt good
+2. celebration of what we did that brought us pain
 
 They underscore the enormous power that each of us has to act in a way that makes life wonderful. It’s endless and enormous, this power we have. And the way I remember it is to stop and do what we just did, express gratitude.
 
