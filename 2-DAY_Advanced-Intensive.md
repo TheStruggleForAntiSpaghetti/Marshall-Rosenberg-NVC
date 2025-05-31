@@ -27,7 +27,7 @@ First, I asked you to celebrate in relation to something you had done.
 
 I also like to be conscious of what others have done to enrich life and then celebrate that. Because the more I remember this, the more I can put this in a perspective I like. Reading the newspapers, I don’t like the perspective of what we’re like as human beings. It’s important to me to remember these things, the awesome power we have. But to believe that, I have to make it real by attributing it to specific actions, the things we can do. Offer someone a ride, for instance, as one of the workshop participants said in her example.
 
-The first celebration was to celebrate the beauty of how we have spent our "dash" so far. 
+The first celebration was to celebrate the beauty of how we have spent our "dash" so far.
 The other kind of celebration I like is to celebrate "mucking up." I like to celebrate it in this way, I use my muckups to learn from. It’s possible to re-interpret everything I don’t like in this "dash." I want to celebrate my muckups as an opportunity to increase my enjoyment of the dash. Everything I’m not too happy about I can use as an opportunity to choose to make things different. 
 MUCKING UP EXERCISE: So identify something going on that you don’t like between you and another person, the way you’re living your dash. Write down 2-3 lines of dialogue that shows what you don’t like that’s going on, what they say and your response that you’re not enjoying. 
 Remember to give empathy first to establish connection, then give your message, e.g., "You’d be more willing to do this if you could do it when you’re ready and not when you’re under pressure, is that right?"
