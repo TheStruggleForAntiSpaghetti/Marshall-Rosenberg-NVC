@@ -210,7 +210,7 @@ Make a concrete request for action to meet the need just identified. Ask clearly
 * [baynvc - Free worksheets and journalling guides](https://baynvc.org/free-worksheets/)
 * [Open Communication](http://opencommunication.org) is dedicated to bringing Nonviolent CommunicationSM and empathy skills to Maine and the surrounding region.
   * [COURAGEOUS COMMUNICATION](http://opencommunication.org/CourageousCommunication-PeggySmith.pdf) by Peggy Smith, CNVC certified NVC Trainer - a Nonviolent Communicaton Curriculum for the Maine Coastal Regional Reentry Center
-* [Transcript of 2-Day Advanced Intensive NVC: Nonviolent Communication](http://eqi.org/p3/unfin/nvc_advanced_training.htm) by Marshall Rosenberg, Ph.D
+* [Transcript of 2-Day Advanced Intensive NVC: Nonviolent Communication](2-DAY_Advanced-Intensive.md) by Marshall Rosenberg, Ph.D
   > The following is a slightly edited transcript of a training Marshall Rosenberg led on Bainbridge Island, Washington, USA, October 20-21, 2000. We are grateful to Lin Rose for transcribing this training. Please note that Marshall sometimes uses Giraffe and Jackal as metaphors for Nonviolent Communication and life-alienated thinking and speaking, respectively.
 * [Nonviolent Communication](https://issuu.com/nonviolent) - Salzburg, Austria - Nonviolent Communication books. Feelings and needs based communication.
 * [NVC Informational Handouts](https://nvcnextgen.org/aboutnvc/nvc-handouts/)
